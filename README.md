@@ -1,2 +1,2 @@
 # sebastianmartinez68
-hola ocmo están? 
+hola cómo están? 
